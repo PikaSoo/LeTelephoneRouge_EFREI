@@ -54,3 +54,13 @@ A chaque déplacement vous laissez une trainée sur votre ancienne position.
          2: RIGHT
          3: BOTTOM
          4: LEFT
+
+ ______________________________
+ 
+ Arène "Le Téléphone Rouge" par URSS & RyanSoGui.
+ Paul BOULOC
+ Florian BRUNET
+ Hadrien BASSERY
+ Sonia LEYRIS
+ Guillaume POIGNANT
+ Ryan VIEHWEGER
