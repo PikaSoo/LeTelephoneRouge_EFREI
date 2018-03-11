@@ -7,10 +7,10 @@ Sauf que non, on n’est pas dans ce monde-là.
 Ici, rien de glorieux, une lutte sans merci pour la survie,
 un besoin irrépressible de voir l’aube de nouveau et libre de préférence,
 ainsi sont les prisonniers du Goulag.
-Quand tu commences à prendre les choses en mains, ta silhouette minuscule se dresse,
+Quand ils commencent à prendre les choses en mains, leur silhouette minuscule se dresse,
 fière et vaillante sous les hurlements des détenus en hauteur,
-les lumières dansent autour de toi et t’éblouissent mais tu poursuis ton combat,
-petit homme rêvant d’un nouvel air, parcourant l’arène et laissant derrière toi ce chemin de lumière.
+les lumières dansent autour d'eux et les éblouissent mais ils poursuivent leur combat,
+petits hommes rêvant d’un nouvel air, parcourant l’arène et laissant derrière eux un chemin de lumière.
 
 Il parait que le jeu en vaut la chandelle, c’est ce qu’ils disent tous,
 avant de se jeter dans l’arène. Jamais un seul n’est revenu.
